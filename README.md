@@ -1,1 +1,0 @@
-# animalitos-app-pro
